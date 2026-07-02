@@ -12,7 +12,8 @@
 </p>
 
 <p align="center">
-<img width="435" height="357" alt="yyfuhghhEhehhgg" src="https://github.com/user-attachments/assets/6df049d3-ec16-4738-a097-b3263fc7f842" />
+<img width="335" height="257" alt="yyfuhghhEhehhgg" src="https://github.com/user-attachments/assets/6df049d3-ec16-4738-a097-b3263fc7f842" />
 </p>
 
-Wip lel
+Wip lel also previously known as @pr3ttiestpriincess Just mentioning it bc i had that username for a yea.r
+
