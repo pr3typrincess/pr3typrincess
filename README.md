@@ -1,7 +1,18 @@
-uhmhm... pr3typriincess hre ^_^
+<p align="center">
+ॱֺּ꒰۪۪ ᩧ݂̫۫ ✿𓏼　　(𝓹r𝟛tყ)pr𓏫 ᩧiincess　ₒᵤ　s｡𓈒۫o phiɑׁׅ֮　　⑅　 ۫݁ ♡ ݂
+</p>
 
-i will rmk all of this
+<p align="center">
+    𓈒♡　　𖥨᩠ׄ݁ ⑅ ݁𓈒݂݂　　"　fix　υׁׅꭈׁׅ　hair　!　"
+</p>
 
-previously known as   @pr3ttiestpriincess for a year
+<p align="center">
+　𓈒　ಣ　im  ׁׅ  𓈒ֵ۫ a　pr3typriincess　IRL　𓈒　permakin　𓈒　srskin　𓈒　past　life　fictionkin　and　l๑ts　more　!<br>
+ ͜͝ 𓈒𓈒۪۪۫　　doubles　can　interact　but　ple ֺּׅ𓏽ִase　dont　harass　me　　 །ྐᨳ( ̷ཀ˕◟̥̥)ഒ
+</p>
 
+<p align="center">
+<img width="435" height="357" alt="yyfuhghhEhehhgg" src="https://github.com/user-attachments/assets/6df049d3-ec16-4738-a097-b3263fc7f842" />
+</p>
 
+Wip lel
