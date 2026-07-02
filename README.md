@@ -7,7 +7,7 @@
 </p>
 
 <p align="center">
-　𓈒　ಣ　im  ׁׅ  𓈒ֵ۫ a　pr3typriincess　IRL　𓈒　permakin　𓈒　srskin　𓈒　past　life　fictionkin　and　l๑ts　more　!<br>
+　𓈒　ಣ　im  ׁׅ  𓈒ֵ۫ a　pr3typriincess　&　sophia (project duzii)　IRL　𓈒　permakin　𓈒　srskin　𓈒　past　life　fictionkin　and　l๑ts　more　!<br>
  ͜͝ 𓈒𓈒۪۪۫　　doubles　can　interact　but　ple ֺּׅ𓏽ִase　dont　harass　me　　 །ྐᨳ( ̷ཀ˕◟̥̥)ഒ
 </p>
 
