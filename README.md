@@ -1,5 +1,5 @@
 <p align="center">
-<img width="782" height="611" alt="download (5)" src="https://github.com/user-attachments/assets/0f8cbfd1-6a5e-4f58-8ebe-f853fe3b6606" />
+<img width="845" height="476" alt="Untitled1929_20260829034505" src="https://github.com/user-attachments/assets/cf51afc2-ad91-4b5d-b8e4-0ad3e0219a09" />
 </p>
 <p align="center">
 (I AM IN TOUCH WITH REALITY OKAY? I WANT TO SPECIFY THIS)
