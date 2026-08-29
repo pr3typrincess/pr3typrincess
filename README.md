@@ -1,4 +1,5 @@
-<img width="308" height="218" alt="image" src="https://github.com/user-attachments/assets/b8ba5e9c-ea56-43f1-ae46-ea7a66504729" /><p align="center">
+
+<p align="center">
   <img src="https://komarev.com/ghpvc/?username=pr3ttiestpriincess&label=𓏼ოaids　&color=E5C3C1" alt="visitor counter">
 </p>
 
