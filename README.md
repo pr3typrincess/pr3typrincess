@@ -32,13 +32,6 @@ wip
 
 
 
-
-
-
-
-
-
-
 She's the nya nya girl with the mya mya brigade
 Jigoku de moereba iino puriti kakumei
 
