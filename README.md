@@ -21,6 +21,7 @@ wip
 
 
 
+<img width="222" height="228" alt="image" src="https://github.com/user-attachments/assets/e8090a95-ab2b-4db3-b847-af4ad2797f1a" />
 
 
 
@@ -28,7 +29,13 @@ wip
 
 
 
+<p align="center">
+i love putting random shit in my wip readmes
 
+
+
+<p align="center">
+tjis looks like a mess
 
 
 
@@ -36,3 +43,7 @@ She's the nya nya girl with the mya mya brigade
 Jigoku de moereba iino puriti kakumei
 
 i love u pink deltarune
+
+
+
+<img width="418" height="522" alt="bluuberries" src="https://github.com/user-attachments/assets/26de961e-149a-4357-b833-9843a6aa9446" />
