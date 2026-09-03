@@ -15,6 +15,7 @@ i do think im pr3typriincess irl but im not delusional and im still healthy
 </p>
 <p align="center">
 https://walloftext.co/pr3typriincess
+https://girlrituals.atabook.org/
 </p>
 
 wip
