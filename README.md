@@ -13,6 +13,6 @@ wip still
 
 <div align="center">
 
-  [ata](https://necbromancer.atabook.org/) &nbsp; [prns cc //wip//](https://pronouns.cc/@pr3tys) 
+  [ata](https://necbromancer.atabook.org/) &nbsp; [prns cc 𓊆wip𓊇](https://pronouns.cc/@pr3tys) 
 
 </div>
