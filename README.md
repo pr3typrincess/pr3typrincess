@@ -5,7 +5,7 @@
 
 <p align="center">
 <img width="845" height="476" alt="Untitled1929_20260829034505" src="https://github.com/user-attachments/assets/cf51afc2-ad91-4b5d-b8e4-0ad3e0219a09" />
-<img width="840" height="38" alt="fdsssss" src="https://github.com/user-attachments/assets/c6e1897e-8a60-42d2-897b-a63152be23f3" />
+<img width="840" height="40" alt="fdsssss" src="https://github.com/user-attachments/assets/c6e1897e-8a60-42d2-897b-a63152be23f3" />
 </p>
 
 <p align="center">
