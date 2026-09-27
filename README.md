@@ -17,3 +17,9 @@ wip still
   [ata](https://necbromancer.atabook.org/)
 
 </div>
+
+<div align="center">
+
+  [prns cc](https://pronouns.cc/@pr3tys)
+
+</div>
