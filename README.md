@@ -17,3 +17,11 @@ RMKING BRO WIP
   [prns cc](https://pronouns.cc/@pr3tys)
 
 </div>
+
+
+<div align="center">
+  <details>
+    <summary>alts</summary>
+    <p> @pr3ty @pr3ttiestpriincess @pr3ttypriincess @m4ttwashere @bananapeelcivilian @selfpreservation6 @cutiemew @voidstarcrown </p>
+  </details>
+</div>
