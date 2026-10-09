@@ -12,11 +12,6 @@ RMKING BRO WIP
 
 </div>
 
-<div align="center">
-
-  [prns cc](https://pronouns.cc/@pr3tys)
-
-</div>
 
 
 <div align="center">
