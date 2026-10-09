@@ -17,6 +17,6 @@ RMKING BRO WIP
 <div align="center">
   <details>
     <summary>alts</summary>
-    <p> @pr3ty @pr3ttiestpriincess @pr3ttypriincess @m4ttwashere @bananapeelcivilian @selfpreservation6 @cutiemew @voidstarcrown </p>
+    <p> @pr3ty @pr3ttiestpriincess @pr3ttypriincess @m4ttwashere @bananapeelcivilian @selfpreservation6 @SKlDSPOOKYMONTH @voidstarcrown </p>
   </details>
 </div>
