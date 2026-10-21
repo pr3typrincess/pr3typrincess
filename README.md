@@ -17,6 +17,6 @@ RMKING BRO WIP
 <div align="center">
   <details>
     <summary>alts</summary>
-    <p> @pr3ty @pr3ttiestpriincess @pr3ttypriincess @m4ttwashere @bananapeelcivilian @selfpreservation6 @SKlDSPOOKYMONTH <- (i is a lowercase L) @voidstarcrown </p>
+    <p> @5ubspace @pr3ty @pr3ttiestpriincess @pr3ttypriincess @m4ttwashere @bananapeelcivilian @selfpreservation6 @voidstarcrown </p>
   </details>
 </div>
