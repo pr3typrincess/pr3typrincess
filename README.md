@@ -20,3 +20,6 @@ RMKING BRO WIP
     <p> @5ubspace @pr3ty @pr3ttiestpriincess @pr3ttypriincess @m4ttwashere @bananapeelcivilian @selfpreservation6 @voidstarcrown </p>
   </details>
 </div>
+
+<p align="center">
+c+h enc dont be scared to sit with me even if ur not someone i know!
