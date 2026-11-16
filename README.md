@@ -3,7 +3,7 @@ me vs procastinating
 
 
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=pr3ttiestpriincess&label=𖣁&color=000000" alt="visitor counter">
+  <img src="https://komarev.com/ghpvc/?username=pr3ttiestpriincess&label=𖣁&color=F86F8C" alt="visitor counter">
 </p>
 
 <div align="center">
