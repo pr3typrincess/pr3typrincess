@@ -12,6 +12,9 @@ me vs procastinating
 
 </div>
 
+<p align="center">
+<img width="500" height="460" alt="Untitled180_20261116133555" src="https://github.com/user-attachments/assets/84a9ab8f-8c66-411b-90d2-aae91b4f1e14" />
+</p>
 
 
 <div align="center">
