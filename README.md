@@ -4,7 +4,7 @@
 
 <div align="center">
 
-  [ata](https://necbromancer.atabook.org/)
+  [a̲ɬa](https://necbromancer.atabook.org/)
 
 </div>
 
