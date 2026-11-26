@@ -19,8 +19,8 @@ me vs procastinating
 
 <div align="center">
   <details>
-    <summary>alts</summary>
-    <p> @5ubspace @pr3ty @pr3ttiestpriincess @pr3ttypriincess @m4ttwashere @bananapeelcivilian @selfpreservation6 @voidstarcrown </p>
+    <summary>some of my alts</summary>
+    <p> @5ubspace @pr3ty @pr3ttiestpriincess @pr3ttypriincess @m4ttwashere </p>
   </details>
 </div>
 
