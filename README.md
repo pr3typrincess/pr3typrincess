@@ -22,7 +22,7 @@
 
 <div align="center">
   <details>
-    <summary>some of my alts</summary>
-    <p> @5ubspace @pr3ty @pr3ttiestpriincess @pr3ttypriincess @m4ttwashere </p>
+    <summary>𑂘omeㅤofㅤmyㅤalts</summary>
+    <p> @5ubspaceㅤ@pr3tyㅤ@pr3ttiestpriincessㅤ@pr3ttypriincessㅤ@m4ttwashere </p>
   </details>
 </div>
