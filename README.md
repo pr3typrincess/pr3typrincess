@@ -20,9 +20,7 @@
   </details>
 </div>
 
-<p align="center">
-c+h enc dont be scared to sit with me even if ur not someone i know!
 
 <p align="center">
-<img width="500" height="460" alt="Untitled180_20261116133555" src="https://github.com/user-attachments/assets/84a9ab8f-8c66-411b-90d2-aae91b4f1e14" />
+<img width="482" height="330" alt="image" src="https://github.com/user-attachments/assets/c900f282-ce87-4477-85cb-c27761589f48" />
 </p>
