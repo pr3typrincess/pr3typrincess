@@ -13,14 +13,16 @@
 </p>
 
 
+
+
+<p align="center">
+<img width="482" height="330" alt="image" src="https://github.com/user-attachments/assets/c900f282-ce87-4477-85cb-c27761589f48" />
+</p>
+
+
 <div align="center">
   <details>
     <summary>some of my alts</summary>
     <p> @5ubspace @pr3ty @pr3ttiestpriincess @pr3ttypriincess @m4ttwashere </p>
   </details>
 </div>
-
-
-<p align="center">
-<img width="482" height="330" alt="image" src="https://github.com/user-attachments/assets/c900f282-ce87-4477-85cb-c27761589f48" />
-</p>
